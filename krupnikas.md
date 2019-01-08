@@ -17,6 +17,7 @@ Ingredients:
 * 10 whole allspice berries
 * 4 (3 inch) cinnamon sticks
 * 2 teaspoons whole peppercorns
+* 1 pinch of saffron
 
 Instructions:
 1. Crack the cardamom seeds and nutmeg with a heavy skillet on a cutting board. Toss them into a saucepan with the caraway seed, cloves, allspice berries, cinnamon sticks, peppercorns, ginger, turmeric, orange zest and lemon zest. Pour in the water, and bring to a boil. Cover, and simmer until the liquid is reduced by 1/2. Strain out spices, and set the liquid aside. 
